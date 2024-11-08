@@ -1,4 +1,4 @@
-# matura22_11jan23
+# Matura-Maj-2022
 https://arkusze.pl/maturalne/informatyka-2022-maj-matura-rozszerzona.pdf
 
 https://arkusze.pl/maturalne/informatyka-2022-maj-matura-rozszerzona-2.pdf
